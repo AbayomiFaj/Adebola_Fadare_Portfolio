@@ -1,2 +1,2 @@
 # Adebola_Fadare_Portfolio
-Professional social media marketing portfolio showcasing proven results in content creation, community management, and digital strategy. Featuring case studies with 40%+ engagement growth and cross-platform campaign examples.
+Professional Social Media Manager portfolio showcasing expertise in strategy development, content planning, analytics, and multi-platform management. Features data-driven case studies with 40%+ engagement growth, improved brand visibility, and successful community-building campaigns.
